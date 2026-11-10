@@ -1,18 +1,18 @@
-# Facebook group post for: Tuesday, November 10, 2026 (Eastern time)
+# Facebook group post for: Wednesday, November 11, 2026 (Eastern time)
 
-Week 2 post 8 (approved in posts-week2). Best time 7:00–7:45 PM ET (Tue team lift 3–5 PM). Text only (optional text card below).
+Week 2 post 9 (approved in posts-week2). Best time 7:00–7:45 PM ET. Text only (optional image below).
 
 ## Post text (paste exactly)
-You sent the quote. They went quiet. Now what?
+Reply to every Google review. Even the 5-star ones with no words.
 
-Most quotes that go quiet aren't a no. People get busy. A simple chase that doesn't feel pushy: Day 1: "Any questions on the quote?" Day 3: "I've got openings Thursday and Saturday if either works." Day 7: "Want me to keep you on the list for next week?" Then once a month after that until they book or tell you to stop. Short, friendly, one question each time. Stop the moment they say no.
+Someone searching "mobile detailing near me" sees your replies. A short reply to every review shows there's a real person behind the business who cares. Keep it simple: thank them, name the service, invite them back. "Thanks, Mike! Glad the interior came out clean. See you in the spring." For a bad review: stay calm, own what's yours, offer to make it right offline. Ten minutes a week covers most businesses.
 
-Comment "audit" and I'll look at how your quotes get followed up.
+Comment "audit" and I'll check your review replies and profile.
 
-Optional image: plain text card (white + electric green) with the 3 example texts as phone bubbles, typed by hand, no real names. No screenshots.
+Optional image: Kane's photo of a detailed interior; caption card "Reply to every review." No screenshots, no business name.
 
 ## Groups
-1. car detailing (A1) — https://www.facebook.com/groups/134140018636982
-2. Everything detailing (A2) — https://www.facebook.com/groups/374593896080517
+1. Car Detailing Central (A3) — https://www.facebook.com/groups/1447022562168935
+2. Car Detailing Business Owners Worldwide (A4) — https://www.facebook.com/groups/1308245187242069
 Backup group: Detailing for Money (A5) — https://www.facebook.com/groups/789809291135780 (only if Kane's join request was accepted; skip if still "requested").
-Rules: read each group's rules first. Nov 9 post 7 was planned for A3 + A4 (not yesterday's groups here); A1/A2 last had Nov 7. Check "Your content" first: if this post is already up in a group, skip that group. Never the same post twice.
+Rules: read each group's rules first. A1/A2 had yesterday (Nov 10); A3/A4 last published Nov 5 (Nov 8 and Nov 9 posts there never went up). Check "Your content" first: if this post is already up in a group, skip that group. Never the same post twice.
