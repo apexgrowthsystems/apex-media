@@ -1,18 +1,18 @@
-# Facebook group post for: Friday, November 13, 2026 (Eastern time)
+# Facebook group post for: Saturday, November 14, 2026 (Eastern time)
 
-Week 2 post 11 (approved in posts-week2). Best time 7:00–7:45 PM ET. Text only (optional image below).
+Week 2 post 12 (approved in posts-week2). Kane is blocked 6:00–10:30 PM ET (hockey, Bowling Green), so post before 5:30 PM ET today (morning run or early afternoon), not the usual 7:00–7:45 PM window. Text only (optional image below).
 
 ## Post text (paste exactly)
-Stop judging your ads by cost per lead alone.
+No-shows are mostly a reminder problem.
 
-My detailing business got leads for about $10 each one week in late October. That number alone told me almost nothing. What matters is cost per booked job: ad spend divided by jobs that actually came from the ads. A cheap lead nobody follows up with costs more than an expensive lead that books. Track both numbers. If cost per lead looks fine and cost per job doesn't, the problem usually isn't the ad. It's what happens after the lead comes in.
+A reminder schedule that works for a lot of detailers: one a week before, one 3 days before, one the morning of, one 2 hours before. Skip any that would land after you booked them. Each one asks them to confirm. If someone does no-show, text them 15 minutes after the start time, kindly, with a way to rebook. Then try once more the next day. No guilt trip.
 
-Running ads now? Comment "audit" and I'll look at what happens after the lead comes in.
+Comment "audit" and I'll look at how your bookings and reminders run.
 
-Optional image: text card "Ad spend ÷ booked jobs = what your ads really cost." No screenshots, no business name.
+Optional image: Kane's photo of a van or setup at an empty driveway; card "They forgot. Remind them." No screenshots, no business name.
 
 ## Groups
-1. Car Detailing Central (A3) — https://www.facebook.com/groups/1447022562168935
-2. Car Detailing Business Owners Worldwide (A4) — https://www.facebook.com/groups/1308245187242069
+1. car detailing (A1) — https://www.facebook.com/groups/134140018636982
+2. Everything detailing (A2) — https://www.facebook.com/groups/374593896080517
 Backup group: Detailing for Money (A5) — https://www.facebook.com/groups/789809291135780 (only if Kane's join request was accepted; skip if still "requested").
-Rules: read each group's rules first. A1/A2 had today (Nov 12, published); A3/A4 last had Nov 11 (A4 published, A3 pending admin approval). If A3 still shows 2+ posts pending approval, use the backup (or A1 is not allowed: had Nov 12). Check "Your content" first: if this post is already up in a group, skip that group. Never the same post twice.
+Rules: read each group's rules first. A3/A4 had yesterday (Nov 13), so not today. A1/A2 last had Nov 12 (2 days ago; plan allows ~1 a week per group, but only A1–A4 are joined, so the 2-group rotation stands). Check "Your content" first: if this post is already up in a group, skip that group. Never the same post twice.
