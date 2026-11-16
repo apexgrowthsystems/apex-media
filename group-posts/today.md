@@ -1,18 +1,18 @@
-# Facebook group post for: Monday, November 16, 2026 (Eastern time)
+# Facebook group post for: Tuesday, November 17, 2026 (Eastern time)
 
-Week 2 post 14 (approved in posts-week2). Text only (optional image below). Post in the morning run (7:20 AM ET) or any free gap.
+Week 3 post W3-1 (approved in posts-week3). Text + optional image. Post in the morning run (7:20 AM ET) or any free gap.
 
 ## Post text (paste exactly)
-What October taught me about my detailing business.
+About 400 leads I paid for, I never called back.
 
-October came in around $6,400 for my detailing business. I could tell you it was the ads. It wasn't only the ads. On the best day, when the follow-up texts worked, 3 of 7 leads booked (43%). The week the follow-up broke, booking dropped to 13%. If I could tell one thing to a detailer starting ads: build the follow-up first, then turn on the ads.
+Over a stretch of my detailing business, Facebook ads brought in 877 leads from about $3,000. Those leads turned into $80k+ in revenue. And about 400 of them I never even called back, because I was too busy on jobs. The ads weren't the problem. I was the follow-up, and I was on jobs all day. If your follow-up is "I'll text them when I get a minute," count how many leads from last month never heard back.
 
-Comment "audit" and I'll tell you honestly whether your follow-up is ready for ads.
+Want a second set of eyes on it? Comment "audit" and I'll look at where your leads leak.
 
-Optional image: text card "Build the follow-up first. Then turn on the ads." (white + electric green). No screenshots, no business name.
+Optional image: text card "877 leads · about 400 never called back" (white + electric green). No screenshots, no business name.
 
 ## Groups
-1. car detailing (A1) — https://www.facebook.com/groups/134140018636982
-2. Everything detailing (A2) — https://www.facebook.com/groups/374593896080517
+1. Car Detailing Central (A3) — https://www.facebook.com/groups/1447022562168935
+2. Car Detailing Business Owners Worldwide (A4) — https://www.facebook.com/groups/1308245187242069
 Backup group: Detailing for Money (A5) — https://www.facebook.com/groups/789809291135780 (only if Kane's join request was accepted; skip if still "requested").
-Rules: read each group's rules first. A3/A4 had yesterday (Nov 15), so not today. Check "Your content" first; if this post is already up or pending in a group, skip that group. Never the same post twice.
+Rules: read each group's rules first. A1/A2 had yesterday (Nov 16), so not today. Check "Your content" first; if this post is already up or pending in a group, skip that group. Never the same post twice.
